@@ -35,4 +35,4 @@ Bank Reconciliation · Shopify · SKR03 · VAT · Remote Work
 ## Available For
 Remote freelance · Finance VA · Bookkeeping · E-Commerce Operations
 
-📧 syedhamza.great@gmail.com · 🔗 [LinkedIn URL](www.linkedin.com/in/syedhamzaright)
+📧 syedhamza.great@gmail.com · 🔗 www.linkedin.com/in/syedhamzaright
